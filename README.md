@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nathanodell
-- 👀 I’m interested in Gaming, Music and Tech
+- 👀 I’m interested in Gaming, Music, Golf and Tech
 - 🌱 I’m currently learning how to code better
 - 💞️ I’m looking to collaborate on work
 - 📫 How to reach me ... you can't
